@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jsul-01010
-- 👀 I’m interested in computer Science/Programming 
+- 👀 I’m interested in computer Science and History.
 - 🌱 I’m currently learning computer Science 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 20111257@wit.ie
